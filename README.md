@@ -1,8 +1,8 @@
-# Atf Canvo Command By Mr Chand 
+# AKATSUKI Canvo Command By Mr MENTAL 
 💸💸💸💸💸💸💸
 
 # Facebook Account 
-fb.com/CH4ND.CH4ND
+fb.com/tara.abu.mental.here
 
 ================================
 How To Use this Canvo Command See Some Steps
@@ -22,7 +22,7 @@ UID
 
 Your Facebook account password 
 # example:-
-CHAND786
+MENTAL000
 
 # 💜 3 💜
 
